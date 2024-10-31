@@ -1,1 +1,1 @@
-# Actuarial-Thesis---French-Institute-of-Actuaries
+# Actuarial-Thesis-French-Institute-of-Actuaries
